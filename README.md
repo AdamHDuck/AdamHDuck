@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Student Project
 - 📫 How to reach me - Don't
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I Piss in a sink ;)
+- ⚡ Fun fact: I Piss
 
 <!---
 AdamHDuck/AdamHDuck is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
